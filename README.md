@@ -1,0 +1,1 @@
+# sora-esse-projeto-nao-funcionou-e-eu-nao-entendia-o-por-que-entao-apenas-enviei
